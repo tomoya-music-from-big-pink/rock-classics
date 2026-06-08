@@ -1,0 +1,12 @@
+### 1960's
+- Highway 61 Revisited (Bob Dylan) (1965)
+- Mr. Tambourine Man (The Byrds) (1965)
+- Pet Sounds (The Beach Boys) (1966)
+- Blues Breakers with Eric Clapton (John Mayall & The Bluesbreakers) (1966)
+- Roger the Engineer (The Yardbirds) (1966)
+- Small Faces (Small Faces) (1966)
+- Disraeli Gears (Cream) (1967)
+- Mr. Fantasy (Traffic) (1967)
+- Surrealistic Pillow (Jefferson Airplne) (1967)
+- The Doors (The Doors) (1967)
+- Cheap Thrills (Bog Brother and The Holding Company) (1968)
