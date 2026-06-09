@@ -10,3 +10,6 @@
 - Surrealistic Pillow (Jefferson Airplne) (1967)
 - The Doors (The Doors) (1967)
 - Cheap Thrills (Bog Brother and The Holding Company) (1968)
+- Electric Ladyland (The Jimi Hendrix Experience) (1968)
+- Music from Big Pink (The Band) (1968)
+- The Kinks Are the Village Green Preservation Society (The Kinks) (1968)
