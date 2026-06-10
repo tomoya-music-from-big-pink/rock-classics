@@ -13,3 +13,5 @@
 - Electric Ladyland (The Jimi Hendrix Experience) (1968)
 - Music from Big Pink (The Band) (1968)
 - The Kinks Are the Village Green Preservation Society (The Kinks) (1968)
+- Truth (Jeff Beck Group) (1968)
+- Abbey Road (The Beatles) (1969)
