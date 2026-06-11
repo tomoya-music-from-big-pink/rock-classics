@@ -10,6 +10,7 @@
 - Mr. Fantasy (Traffic) (1967)
 - Surrealistic Pillow (Jefferson Airplne) (1967)
 - The Doors (The Doors) (1967)
+- Vanilla Fudge (Vanilla Fudge) (1967)
 - Cheap Thrills (Bog Brother and The Holding Company) (1968)
 - Electric Ladyland (The Jimi Hendrix Experience) (1968)
 - Music from Big Pink (The Band) (1968)
@@ -20,3 +21,13 @@
 - Blind Faith (Blind Faith) (1969)
 - In the Court of the Crimson King (King Crimson) (1969)
 - Led Zeppelin (Led Zeppelin) (1969)
+- Let It Bleed (The Rolling Stones) (1969)
+- Live/Dead (Grateful Dead) (1969)
+- Ssssh (Ten Years After) (1969)
+- Then Play On (Fleetwood Mac) (1969)
+- シカゴの軌跡 (Chicago Transit Authority) (1969)
+---
+### 1970's
+- Climbing! (Mountain) (1970)
+- Déjà Vu (Crosby, Stills, Nash & Young) (1970)
+- Layla and Other Assorted Love Songs (Derek and The Dominos) (1970)
