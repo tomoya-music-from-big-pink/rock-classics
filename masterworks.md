@@ -28,6 +28,9 @@
 - シカゴの軌跡 (Chicago Transit Authority) (1969)
 ---
 ### 1970's
+- Black Sabbath (Black Sabbath) (1970)
 - Climbing! (Mountain) (1970)
 - Déjà Vu (Crosby, Stills, Nash & Young) (1970)
 - Layla and Other Assorted Love Songs (Derek and The Dominos) (1970)
+- Live Album (Grand Funk) (1970)
+- At Fillmore East (The Allman Brothers Band) (1971)
