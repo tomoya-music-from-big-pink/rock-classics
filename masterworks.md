@@ -34,3 +34,5 @@
 - Layla and Other Assorted Love Songs (Derek and The Dominos) (1970)
 - Live Album (Grand Funk) (1970)
 - At Fillmore East (The Allman Brothers Band) (1971)
+- Free Live! (Free) (1971)
+- Who's Next (The Who)
